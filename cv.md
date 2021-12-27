@@ -10,6 +10,7 @@
 ### ***Contact:***
 * **mobile:** +37533-3557291
 * **email:** protvadim@mail.ru
+* **discord:** protvadim
 
 ### ***WORK:***
 * 2008-2020 Electrician
